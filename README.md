@@ -20,4 +20,12 @@
   $\color{#FF0000}{\text{\{\textit{c00lkidd is 0nee 0f my synpaths! hees als0 a c0mf char!}}}}$
 </details>
 
+
+<details>
+  <summary>$\color{#FF0000}{\textbf{\textit{0𝘵𝘩𝘦𝘦𝘳 𝘪𝘯𝘧0!}}}$</summary>
+  <br>
+
+  $\color{#FF0000}{\text{\textbf{\textit{pleeasee dd0nt c+h if im with my frieendds and i dd0nt kn0w y0u!}}}}$
+  <br>
+</details>
 </div>
