@@ -4,6 +4,11 @@
 <br />
 <img width="374" height="281" alt="2099" src="https://github.com/user-attachments/assets/c902dfb7-e1f7-4ad4-bc2d-3d8b15d3f08a" />
 
+<div align="center">
+  <img src="https://komarev.com/ghpvc/?username=run-c00lkidd&color=FF0000&label=>+c00l-mini0ns!&base=2013" width="300px" alt="> c00l-mini0ns!">
+</div>
+
+
 <details>
   <summary>$\color{#FF0000}{\textbf{\textit{𝘣a𝘴𝘪𝘤𝘴!}}}$</summary>
   <br>
