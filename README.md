@@ -12,9 +12,12 @@
   <br>
   $\color{#FF0000}{\text{\textbf{\textit{0f c0ursee, I d0nt always usee this. sumtimees i typee n0rmally, sumtimees i d0nt.}}}}$
   
-  <br><br>
   
   $\color{#FF0000}{\text{\textbf{\textit{I usee he/it pr0n0uns, but the "it" part is just eexpeerimeental. I much preefeer he/him!}}}}$
+  
+  $\color{#FF0000}{\text{\{\textit{I dd0 N0T supp0rt f0rsakeen, i simply likee thee classic c00lkidd skin voiceelinees.}}}}$
+
+  $\color{#FF0000}{\text{\{\textit{c00lkidd is 0nee 0f my synpaths! hees als0 a c0mf char!}}}}$
 </details>
 
 </div>
