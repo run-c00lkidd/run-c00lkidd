@@ -27,5 +27,13 @@
 
   $\color{#FF0000}{\text{\textbf{\textit{pleeasee dd0nt c+h if im with my frieendds and i dd0nt kn0w y0u!}}}}$
   <br>
+
+  $\color{#FF0000}{\text{\textbf{\textit{DNI!!}}}}$
+  <br>
+
+  $\color{#FF0000}{\text{\textbf{\textit{basic dni, maga/trump supporters, if you dont state ur age.}}}}$
+  <br>
+
+  $\color{#FF0000}{\text{\textbf{\textit{i bl0ck/hidee freely, eespeecially if y0u upseet mee!}}}}$
 </details>
 </div>
